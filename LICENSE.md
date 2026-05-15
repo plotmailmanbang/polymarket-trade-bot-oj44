@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with rare Polymarket Addon | event-driven-trading + risk-management, the #1 addon. Includes event-driven-trading and risk-management for a smoother
 
 
 
